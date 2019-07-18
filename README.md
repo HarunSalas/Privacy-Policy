@@ -55,10 +55,10 @@ Teknik iletişim dosyası,  siteyi kaç kişinin ziyaret ettiğini, bir kişinin
 
 Firmamız, işbu "Gizlilik Politikası" hükümlerini dilediği zaman sitede yayınlamak veya kullanıcılara elektronik posta göndermek veya sitesinde yayınlamak suretiyle değiştirebilir. Gizlilik Politikası hükümleri değiştiği takdirde, yayınlandığı tarihte yürürlük kazanır.
 
-Gizlilik politikamız ile ilgili her türlü soru ve önerileriniz için ……………….. adresine email gönderebilirsiniz. Firmamız’a ait aşağıdaki iletişim bilgilerinden ulaşabilirsiniz.
+Gizlilik politikamız ile ilgili her türlü soru ve önerileriniz için FUHEOTO@GMAİL adresine email gönderebilirsiniz. Firmamız’a ait aşağıdaki iletişim bilgilerinden ulaşabilirsiniz.
 
-Firma Ünvanı: 
-Adres: 
-Eposta: 
-Tel:
-Fax:
+Firma Ünvanı: FUHE OTOMOTIV ELEKTRONİK SAN. VE TİC LTD. ŞTİ.
+Adres: MİMAR SİNAN MAH. USKUDAR CAD. YEDPA TİC.MER. F CAD.1F 362 ATAŞEHİR/İST
+Eposta: FUHEOTO@GMAİL.COM   
+Tel:+90 543 233 0490
+
